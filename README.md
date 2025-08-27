@@ -9,4 +9,3 @@
   
 ---
 # <p align="right"> „ we earned the right to be here. ”
-#### <p align="center"> ![](https://komarev.com/ghpvc/?username=astrocigarettes) 

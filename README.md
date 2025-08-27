@@ -1,7 +1,5 @@
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=astrocigarettes&style=flat-square&color=lightgrey&label=drones+deactivated)
 # „ jammer activated. ”
-
-![](https://komarev.com/ghpvc/?username=astrocigarettes&style=flat-square&color=lightgrey&label=drones+deactivated)
-
 ---
   
  <p align="center"> <img src="https://i.postimg.cc/vH1YQQFN/tae.gif">

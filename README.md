@@ -1,3 +1,4 @@
+---
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=astrocigarettes&style=flat-square&color=lightgrey&label=drones+deactivated)
  #
 
@@ -14,3 +15,5 @@
  
 # <p align="right"> „ we earned the right to be here. ”
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31myjpd6qxcncq3fnh6uizr3sg5q&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=808080&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+---

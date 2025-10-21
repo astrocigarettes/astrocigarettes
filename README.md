@@ -5,10 +5,9 @@
 # <p> „ jammer activated. ” </p>
 
  <p align="center"> <img src="https://i.postimg.cc/vH1YQQFN/tae.gif">
- <p align="center"> faro, novelist, gardener, doctor, lucky guy main / NAEU <br>
- <p align="center"> striker / mute main
-   <p align="center"> usually gold & roam lane / uranus, hanabi & floryn main
- <p align="center"> dni list ;; https://rentry.co/mrholmes
+<p align="center"> 🌙 Offtab | 🟢 Online | 💬 Talk 2 me
+ <p align="center"> <a href="https://221b.atabook.org/" target="_blank">atabook</a>  ˖᯽ ݁  <a href="https://putty.straw.page" target="_blank">strawpage</a> ˖᯽ ݁ ill add com sheet when im done with it lol
+  <p align="center"> ꒰ $${\color{#7c24ab} Idv | (‾⊛_ゝ⊗) / ⥌⥌OܓO⥍}$$ ⸝⸝ $${\color{#f28022} ML | uranus/hanabi}$$ ⸝⸝ R6 | striker/mute ꒱
 <p align="center"> <img src="https://i.postimg.cc/pd0VWyT3/poop.gif">
 
  # 

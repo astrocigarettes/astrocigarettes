@@ -5,7 +5,7 @@
 
 <img src="https://i.postimg.cc/vH1YQQFN/tae.gif">
 <p>🌙 Offtab | 🟢 Online | 💬 Talk 2 me </p>
-<a href="https://221b.atabook.org/" target="_blank">atabook</a>  ˖᯽ ݁  <a href="https://putty.straw.page" target="_blank">strawpage</a> ˖᯽ ݁ ill add com sheet when im done with it lol </p>
+<a href="https://221b.atabook.org/" target="_blank">atabook</a>  ˖᯽ ݁  <a href="https://putty.straw.page" target="_blank">strawpage</a> ˖᯽ ݁ <a href="https://mrhlmes.carrd.co/" target=_"blank">commission me!</a> </p>
 <p>꒰ $${\color{#7c24ab} Idv | (‾⊛_ゝ⊗) / ⥌⥌OܓO⥍}$$ ⸝⸝ $${\color{#f28022} ML | uranus/hanabi}$$ ⸝⸝ R6 | striker/mute ꒱
 <img src="https://i.postimg.cc/pd0VWyT3/poop.gif">
  
